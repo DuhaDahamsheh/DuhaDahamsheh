@@ -1,6 +1,7 @@
 
 
-![Black Modern Vlogger YouTube Banner (1)](https://github.com/DuhaDahamsheh/DuhaDahamsheh/assets/136118579/7ebf0fef-07ec-4cdd-8003-ca3758826475)
+![Pastel Pink Purple Black Minimalist Pastel Quote Facebook Cover](https://github.com/DuhaDahamsheh/DuhaDahamsheh/assets/136118579/da5c0483-1556-4476-94ab-10f8c3222fb8)
+
 
 
 <h3 align="left">Connect with me:</h3>
