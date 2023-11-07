@@ -1,6 +1,6 @@
 
 
-![Pastel Pink Purple Black Minimalist Pastel Quote Facebook Cover](https://res.cloudinary.com/dgdapuuob/video/upload/f_auto:video,q_auto/a0cjwnjwu5cox3blnfkl)
+![Pastel Pink Purple Black Minimalist Pastel Quote Facebook Cover](https://res.cloudinary.com/dgdapuuob/image/upload/f_auto,q_auto/k21101sylzl6ehuz4mms)
 
 
 
