@@ -3,7 +3,7 @@
 
 
 ![Galaxy Business Digital Background (1)](https://github.com/DuhaDahamsheh/DuhaDahamsheh/assets/136118579/c7e36324-c519-4b1d-92c0-79233913627f)
-
+[![Anurag's GitHub stats-Dark](https://github-readme-stats.vercel.app/api?username=anuraghazra&show_icons=true&theme=dark#gh-dark-mode-only)](https://github.com/anuraghazra/github-readme-stats#gh-dark-mode-only)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
