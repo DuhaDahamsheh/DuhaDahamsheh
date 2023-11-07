@@ -1,7 +1,8 @@
 
 
 
-![Galaxy Business Digital Background (1)](https://www.canva.com/design/DAFzgB6n_qc/8mA1B1MTVLFOjELcl18FYQ/watch?utm_content=DAFzgB6n_qc&utm_campaign=share_your_design&utm_medium=link&utm_source=shareyourdesignpanel)
+
+![Galaxy Business Digital Background (1)](https://github.com/DuhaDahamsheh/DuhaDahamsheh/assets/136118579/c7e36324-c519-4b1d-92c0-79233913627f)
 
 
 <h3 align="left">Connect with me:</h3>
