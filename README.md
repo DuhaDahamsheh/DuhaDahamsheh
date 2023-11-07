@@ -1,8 +1,8 @@
 
 
-![Pastel Pink Purple Black Minimalist Pastel Quote Facebook Cover](https://github.com/DuhaDahamsheh/DuhaDahamsheh/assets/136118579/da5c0483-1556-4476-94ab-10f8c3222fb8)
+![Pastel Pink Purple Black Minimalist Pastel Quote Facebook Cover](https://www.canva.com/design/DAFzgBkVPlI/Bob9wthCp0jk3Gux5HMWSA/edit?utm_content=DAFzgBkVPlI&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
-<embed  src:''/>
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
