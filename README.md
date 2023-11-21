@@ -1,8 +1,9 @@
 
 
 
+![Earth’s Rotation Intro Educational Video in Blue and White Realistic Style](https://github.com/DuhaDahamsheh/DuhaDahamsheh/assets/136118579/96d15a27-0cec-42da-96af-fde8a8807594)
 
-![Galaxy Business Digital Background (1)](https://github.com/DuhaDahamsheh/DuhaDahamsheh/assets/136118579/c7e36324-c519-4b1d-92c0-79233913627f)
+
 <h3 align="left">About Me:</h3>
 <p align="left">
   A full-stack developer with entry-level experience specializing in user interface design, application development, and continuous improvement, an organized and dependable candidate successful, at managing multiple priorities with a positive attitude and willingness to take on added responsibilities to meet team goals.
